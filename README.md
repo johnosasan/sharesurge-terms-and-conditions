@@ -18,7 +18,7 @@ To participate in the ShareSurge Program, you must:
 •	Be at least 18 years old (or the age of majority in your jurisdiction).
 •	Have a valid, public Twitter account that follows @JohnOsasan.
 •	Have a minimum of 1,000 Followers on your Twitter account.
-•	Complete the Program registration form at https://forms.gle/TrpEDobaHz9BwVy76
+•	Complete the Program registration form at https://forms.gle/QKSWG77NXAffKaqRA
 •	Reside in a country where the Program is offered (see Section 10 for restrictions).
 •	Not be an employee, contractor, or immediate family member of @JohnOsasan or its affiliates.
 •	Grow your Twitter account by a minimum of 500 new Followers monthly to remain eligible for payment after the first month.
@@ -27,7 +27,7 @@ We reserve the right to verify eligibility and disqualify participants who do no
 3. How to Participate
 
 To earn rewards, participants must:
-1.	Register for the Program via the form at https://forms.gle/TrpEDobaHz9BwVy76.
+1.	Register for the Program via the form at https://forms.gle/QKSWG77NXAffKaqRA.
 2.	Follow @JohnOsasan on Twitter.
 3.	Engage with our Twitter posts (e.g., likes, retweets, comments, quote tweets).
 4.	Adhere to Twitter’s Rules and Content Policies (https://help.twitter.com/en/rules-and-policies).
